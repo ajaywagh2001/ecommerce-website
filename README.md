@@ -18,4 +18,5 @@ Browse and Select: Explore our categories and choose from a wide range of laptop
 Secure Checkout: Enjoy a smooth and secure checkout process with multiple payment options.
 Track Your Order: Stay updated on your order status with our easy tracking system.
 Enjoy Your Purchase: Receive your items swiftly and start enjoying your new tech!
+
 At NavGeeta, we are committed to providing you with the best online shopping experience for all your technology needs. Start shopping today and experience the convenience and excitement of NavGeeta!
